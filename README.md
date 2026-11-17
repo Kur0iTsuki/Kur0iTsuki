@@ -33,5 +33,6 @@ Graduated May 2025 · GPA: 3.8 / 4.0
 
 ## Contact
 
+- [LinkedIn](https://www.linkedin.com/in/vardhantammana)
 - Email: vardhantammana@gmail.com
 - Location: Austin, TX
